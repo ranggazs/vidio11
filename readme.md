@@ -1,4 +1,4 @@
-# recode from AgathaSangkara/Vidio
+# recode from Someone
 
 - Mohon untuk tidak mengganti credit
 - Tidak menjual/perbelikan script
